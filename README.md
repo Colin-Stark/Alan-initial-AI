@@ -1,0 +1,2 @@
+# Alan-initial-AI
+THE GET STARTED PART OF ALAN AI
